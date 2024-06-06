@@ -5,6 +5,8 @@
 ![image](https://github.com/hotlole/virtual-laboratory-work/assets/109622231/629ca958-d711-445e-9bbb-073b3c4a80bb)
 ![image](https://github.com/hotlole/virtual-laboratory-work/assets/109622231/96c74ada-7b33-420c-bb8d-9595f5865220)
 ![image](https://github.com/hotlole/virtual-laboratory-work/assets/109622231/655727ef-3ca8-484f-a71d-97e26a92f55d)
+![image](https://github.com/hotlole/virtual-laboratory-work/assets/109622231/f0e1fd2f-0605-4bd3-ab0a-25c8b29dfe34)
+
 
 
 
